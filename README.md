@@ -1,2 +1,0 @@
-# supervidrios
-diseño pagina web
